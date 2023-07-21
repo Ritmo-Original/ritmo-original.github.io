@@ -10,6 +10,7 @@
 - [Ouça no Spotify](https://open.spotify.com/intl-pt/album/38Et4GithOMUmjmgAKtxwM?si=y7XrNr18RIWG9784jw7jCA)
 - [Ouça no Deezer](https://deezer.page.link/4R1i1YwYdaHHUu19A)
 - [Ouça no Amazon Music](https://music.amazon.com/albums/B0C7WS7LDF?marketplaceId=ART4WZ8MWBX2Y&musicTerritory=BR&ref=dm_sh_WWH0hfq5QYQc7Xw8MxmicjixR)
+
 ### Nothing But Will Stop Me
 - [Ouça no Spotify](https://open.spotify.com/intl-pt/album/0sQIzsmf85PIo02E4pzceq?si=[cmRLKy0dSzSzvrQ4DTEnWg)
 - [Ouça no Deezer](https://deezer.page.link/tU7Y8qC4nCNyRwcd9)
